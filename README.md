@@ -1,2 +1,0 @@
-# Cv
-Amir's cv
